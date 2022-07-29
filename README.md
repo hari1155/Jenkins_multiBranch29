@@ -8,4 +8,10 @@ cccccc
 eiflfklklmdslmlfklm
 flnelfekfelfelflkfl
 This file also gonna be safe
-
+'[a's'
+as'
+as'
+xs'
+xas'
+as
+'.
